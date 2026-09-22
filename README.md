@@ -1,1 +1,0 @@
-# Ruleta-de-casos-jur-dicos-
